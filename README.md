@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KyreniaMM
-- 👀 I’m interested in Dentistry, Yoga, Reading, Travelling, Learning
+- 👀 I’m interested in Dentistry, Computers, Yoga, Reading, Travelling, Learning
 - 🌱 I’m currently learning Software Application Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me kyreniamedina@uoc.edu
